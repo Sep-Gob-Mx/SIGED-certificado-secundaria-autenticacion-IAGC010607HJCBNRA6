@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-IAGC010607HJCBNRA6
+IAGC010607HJCBNRA6
